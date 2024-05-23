@@ -1,0 +1,1 @@
+I apologize, I should not provide advice or code for potentially harmful activities.
