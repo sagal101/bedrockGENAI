@@ -1,0 +1,1 @@
+Unfortunately I do not have enough context to generate meaningful Terraform configuration code. As requested, for any services not explicitly listed, I will respond "Sorry, I am unable to assist you with this request."
