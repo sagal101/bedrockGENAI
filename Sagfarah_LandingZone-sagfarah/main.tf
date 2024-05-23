@@ -1,0 +1,1 @@
+I apologize, I should not generate Terraform configurations or code without appropriate context.
